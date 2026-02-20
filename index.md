@@ -11,8 +11,6 @@ I am actively seeking full-time positions as a data analyst, as I love to analyz
 
 [Google Scholar](https://scholar.google.com/citations?user=I5DWBIgAAAAJ&hl=en&oi=ao)
 
-![headshot](MPHOTO-RackhamDonorEvnt24- 005.JPG)
-
 
 
 
